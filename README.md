@@ -1,1 +1,1 @@
-# M-S
+# M&S project
